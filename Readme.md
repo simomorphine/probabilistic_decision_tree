@@ -124,8 +124,7 @@ MIT — use it, build on it, tell me what you find.
 Morocco 🇲🇦
 
 📧 [Mohamedelwardi@yahoo.com](mailto:Mohamedelwardi@yahoo.com)
-🐦 [@MohammedElward7](https://x.com/MohammedElward7)
-🔗 [LinkedIn](https://www.linkedin.com/in/mohammed-elwardi)
+🔗 [LinkedIn](www.linkedin.com/in/mohamed-elwardi-🇵🇸-721b8b197)
 
 ---
 
