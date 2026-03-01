@@ -120,7 +120,7 @@ MIT — use it, build on it, tell me what you find.
 
 ## Author
 
-**Mohamed Elwardi** — Math teacher, backend developer, accidental theorist.
+**Mohamed Elwardi** — Math teacher, accidental theorist.
 Morocco 🇲🇦
 
 📧 [Mohamedelwardi@yahoo.com](mailto:Mohamedelwardi@yahoo.com)
